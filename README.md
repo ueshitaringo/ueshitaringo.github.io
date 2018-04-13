@@ -1,0 +1,1 @@
+# ueshitaringo.github.io
